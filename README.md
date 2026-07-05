@@ -1,6 +1,8 @@
 # Johan Fredin Knutzén
 
-Programme Director and researcher in suicide prevention in transport systems and public environments, affiliated with the National Centre for Suicide Research and Prevention (NASP), Region Stockholm Health Care Services and Karolinska Institutet.
+Programme Director, Suicide Prevention Programme in Transport Systems and Public Environments, National Centre for Suicide Research and Prevention (NASP), Region Stockholm Health Care Services.
+
+Subject matter expert and clinical psychologist. 
 
 PhD candidate at Karolinska Institutet, with expected defence in 2026.
 
